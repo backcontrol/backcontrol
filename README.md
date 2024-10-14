@@ -1,1 +1,1 @@
-The only thing standing between you and your goal is the story you keep telling yourself as to why you can't achieve it.
+The important thing about a problem is not its solution, but the strength we gain in finding the solution.
